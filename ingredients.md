@@ -1,0 +1,1 @@
+rice, eggs, vegetables, garlic, soy sauce, oyster sauce, toasted sesame oil
